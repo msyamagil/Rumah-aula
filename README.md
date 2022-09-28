@@ -1,2 +1,1 @@
-# Rumah-aula
-Tempat kak Aula bermain
+Tegur saya jika anda melihat saya
